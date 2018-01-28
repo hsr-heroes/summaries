@@ -1,0 +1,1 @@
+The fact sheets for the concepts introduced in week 4 are identical to those for week 5 (topic covergae continues there). See folder for lesson 5.
